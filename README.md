@@ -1,3 +1,3 @@
-Design Engineer | Passionate about technology and design | Coffee lover ☕️
+Software Engineer | Passionate about technology and design | Coffee lover ☕️
 
-My goal is to design amazing, accessible experiences by combining design and code skills. I constantly seek to raise standards and accessibility in each project I undertake, aiming to positively impact users.
+My goal is to create incredible and accessible experiences by combining my college studies in Software Engineering with design and coding skills. I constantly strive to raise the standards of quality and accessibility in every project, aiming to positively impact users' lives.
